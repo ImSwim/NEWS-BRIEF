@@ -105,5 +105,6 @@ https://patents.google.com/patent/KR20120123781A/ko
 https://koreascience.kr/article/JAKO201524848982405.pdf
 
 https://www.google.com/url?sa=i&url=http%3A%2F%2Fwww.e-patentnews.com%2F5957&psig=AOvVaw2tQv7N40okriMQirCalgde&ust=1721716331226000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCKjynqSDuocDFQAAAAAdAAAAABAg
+https://slidesplayer.org/slide/14330284/
 
 
