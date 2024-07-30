@@ -108,3 +108,5 @@ https://www.google.com/url?sa=i&url=http%3A%2F%2Fwww.e-patentnews.com%2F5957&psi
 https://slidesplayer.org/slide/14330284/
 
 
+조선 PLM 과제
+https://www.cadgraphics.co.kr/plm/2009/presentation/F1.pdf
